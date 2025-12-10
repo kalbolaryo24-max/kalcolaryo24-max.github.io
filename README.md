@@ -1,1 +1,0 @@
-# kalcolaryo24-max.github.io
